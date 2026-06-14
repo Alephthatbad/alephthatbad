@@ -1,3 +1,3 @@
 ![](bae-baelz.gif)
 
-Hi, im aleph and i like to do things
+I WANNA PUT DOLIA'S LIVE2D SO BAD BUT I CANT GET MY HANDS ON THE MP4 OR GIF 
