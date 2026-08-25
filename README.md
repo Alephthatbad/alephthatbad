@@ -3,7 +3,7 @@
 [Rentry](https://fluffle.cc/dolia)  ILY SHUBA ♡♡♡ (follow my goat [Shuba](https://github.com/adorelace))
 
 
-ANYWAYS, HIIIIIII IM ALEF. INFO ABT ME ARE ON MY CARRD LINK AND PRONOUNS.PAGE 
+ANYWAYS, HIIIIIII IM ALEF. INFO ABT ME ARE ON MY CARRD LINK AND PRONOUNS.PAGE (CARRD IS NOT MOBILE FRIENDLY BTW)
 
 Fear for your life to interact with me
 
